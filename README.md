@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @saurabhkumarjhatiu
-- 👀 My Name is Saurabh Kumar Jha
+- 👀 My Name is Saurabh Kumar 
 - 🌱 I’m From India, Kolkata
 - 💞️ I’m currently learning In TECHNO INDIA UNIVERSITY
 - ⚡ This is My GITHUB ACCOUNT
